@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **sambuj10@outlook.com**
 
-- ⚡ Fun fact **I am an Android App Developer**
+- ⚡ **I am an Android App Developer**
 
 ## 🚀 Languages and Tools:
 
